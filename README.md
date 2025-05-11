@@ -1,1 +1,1 @@
-# Edusync-
+# Edusync
